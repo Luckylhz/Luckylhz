@@ -1,4 +1,4 @@
-### 大家好吖！我是[Luckylhz](https://luckylhz.top/)吖！
+### 大家好吖！我是[Luckylhz](https://github.com/Luckylhz/)吖！
 
 - 我是一名学生，目前六年级(石家庄的预初)！
 - 我喜欢玩Minecraft和Goose Goose Duck，创作Minecraft的资源！
